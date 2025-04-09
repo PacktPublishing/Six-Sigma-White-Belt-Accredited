@@ -1,0 +1,1 @@
+# Six-Sigma-White-Belt-Accredited
